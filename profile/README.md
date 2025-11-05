@@ -1,1 +1,1 @@
-## 성홍제 오늘 까지 못하면 맥북 압수
+![3기 졸업생](https://github.com/user-attachments/assets/fdb8b4ce-1ea8-476d-ae06-a6ddf8868ff8)
